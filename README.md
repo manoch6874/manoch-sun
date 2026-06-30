@@ -34,5 +34,3 @@ Find out more
 
 Metal Forming Machinery
 Find out more
-
-Sheet Metal Machine
