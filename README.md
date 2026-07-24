@@ -16,5 +16,3 @@ Find out more
 
 Bandsawing Machines
 Find out more
-
-Circular Saws
