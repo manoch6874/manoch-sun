@@ -13,9 +13,8 @@ Find out more
 
 Icaro Bar Benders - Shears
 Find out more
+9
 
-Bandsawing Machines
-Find out more
 6
 3
-
+12
