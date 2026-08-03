@@ -15,6 +15,3 @@ Icaro Bar Benders - Shears
 Find out more
 9
 
-6
-3
-12
