@@ -1,9 +1,5 @@
 # manoch-sun
-Gravity Feed Bandsawing Machines
-
-
-Ercolina Tube Benders
-Find out more
+Gr
 
 Ercolina Ring Rollers
 Find out more
