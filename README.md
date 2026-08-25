@@ -7,5 +7,4 @@ Belt Grinders - Tube Notchers-Tube Notching Machines
 Find out more
 
 Icaro Bar Benders - Shears
-Find out more
-321
+Find out mor
