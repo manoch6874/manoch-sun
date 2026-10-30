@@ -4,3 +4,6 @@ Find out mo3
 a
 b
 3
+1
+2
+3
